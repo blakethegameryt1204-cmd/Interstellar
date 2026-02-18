@@ -1,1 +1,1 @@
-An apple, potato, and onion all taste the same if you eat them with your nose plugged.
+The shortest war in history was between Britain and Zanzibar — it lasted 38 minutes.
