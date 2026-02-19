@@ -1,1 +1,1 @@
-Bubble wrap was originally intended to be wallpaper.
+Your brain uses the same amount of power as a 10-watt lightbulb.
