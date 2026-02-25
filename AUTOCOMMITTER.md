@@ -1,1 +1,1 @@
-Cows can walk up stairs but not down.
+Bubble wrap was originally intended to be wallpaper.
