@@ -1,1 +1,1 @@
-Elephants are the only animals that can’t jump.
+Your brain uses the same amount of power as a 10-watt lightbulb.
