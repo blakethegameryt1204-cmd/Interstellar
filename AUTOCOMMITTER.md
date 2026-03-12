@@ -1,1 +1,1 @@
-Koalas have fingerprints that are nearly identical to humans.
+The shortest war in history was between Britain and Zanzibar — it lasted 38 minutes.
