@@ -1,1 +1,1 @@
-Most wasabi isn’t real wasabi — it’s colored horseradish.
+Koalas have fingerprints that are nearly identical to humans.
