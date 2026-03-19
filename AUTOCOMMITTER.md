@@ -1,1 +1,1 @@
-Humans share about 60% of their DNA with bananas.
+Most wasabi isn’t real wasabi — it’s colored horseradish.
