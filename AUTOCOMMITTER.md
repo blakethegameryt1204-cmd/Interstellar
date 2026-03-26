@@ -1,1 +1,1 @@
-Slugs have four noses.
+Pineapples take two years to grow.
