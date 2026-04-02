@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+The human stomach gets a new lining every few days.
