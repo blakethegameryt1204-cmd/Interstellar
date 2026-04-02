@@ -1,1 +1,1 @@
-Pigeons can do math.
+Some cats are allergic to humans.
