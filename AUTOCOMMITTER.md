@@ -1,1 +1,1 @@
-There are more stars in the universe than grains of sand on Earth.
+A day on Earth used to be only 18 hours long.
