@@ -1,1 +1,1 @@
-Avocados are toxic to birds.
+Sharks are the only fish that can blink with both eyes.
