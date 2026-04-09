@@ -1,1 +1,1 @@
-Humans share about 60% of their DNA with bananas.
+Avocados are toxic to birds.
