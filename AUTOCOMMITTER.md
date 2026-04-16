@@ -1,1 +1,1 @@
-Humans glow in the dark — very faintly.
+The average person walks the equivalent of five times around the world in a lifetime.
