@@ -1,1 +1,1 @@
-A group of flamingos is called a "flamboyance."
+Humans share about 60% of their DNA with bananas.
