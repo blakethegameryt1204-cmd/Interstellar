@@ -1,1 +1,1 @@
-Butterflies can taste with their feet.
+Frogs absorb water through their skin — they don’t drink it.
