@@ -1,1 +1,1 @@
-Pineapples take two years to grow.
+Humans glow in the dark — very faintly.
