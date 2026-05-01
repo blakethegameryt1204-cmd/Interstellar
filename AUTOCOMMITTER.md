@@ -1,1 +1,1 @@
-It rains diamonds on Jupiter and Saturn.
+Chewing gum while cutting onions can help prevent tears.
