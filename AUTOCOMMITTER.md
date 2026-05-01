@@ -1,1 +1,1 @@
-Chewing gum while cutting onions can help prevent tears.
+Hot water freezes faster than cold water — it’s called the Mpemba effect.
