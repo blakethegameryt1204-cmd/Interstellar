@@ -1,1 +1,1 @@
-The heart of a shrimp is located in its head.
+It rains diamonds on Jupiter and Saturn.
