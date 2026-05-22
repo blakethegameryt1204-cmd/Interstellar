@@ -1,1 +1,1 @@
-Bananas are berries, but strawberries are not.
+Bees sometimes sting other bees.
