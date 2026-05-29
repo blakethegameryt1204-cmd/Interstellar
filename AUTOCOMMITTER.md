@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+Some cats are allergic to humans.
