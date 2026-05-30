@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+A bolt of lightning is hotter than the surface of the sun.
