@@ -1,1 +1,1 @@
-A bolt of lightning is hotter than the surface of the sun.
+Elephants are the only animals that can’t jump.
