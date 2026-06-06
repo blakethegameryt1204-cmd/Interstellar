@@ -1,1 +1,1 @@
-Avocados are toxic to birds.
+Tomatoes have more genes than humans.
