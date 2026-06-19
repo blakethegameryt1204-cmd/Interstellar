@@ -1,1 +1,1 @@
-The original London Bridge is now in Arizona.
+The tongue is the only muscle in the body attached from one end.
