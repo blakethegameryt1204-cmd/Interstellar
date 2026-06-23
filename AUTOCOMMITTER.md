@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+Humans are bioluminescent — we glow, but our eyes can’t detect it.
