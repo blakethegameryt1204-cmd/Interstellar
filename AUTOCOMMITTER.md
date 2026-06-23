@@ -1,1 +1,1 @@
-A single cloud can weigh more than a million pounds.
+Some cats are allergic to humans.
