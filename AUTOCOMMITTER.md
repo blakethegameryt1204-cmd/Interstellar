@@ -1,1 +1,1 @@
-Humans are bioluminescent — we glow, but our eyes can’t detect it.
+A jiffy is an actual unit of time — 1/100th of a second.
