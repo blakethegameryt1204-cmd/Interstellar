@@ -1,1 +1,1 @@
-Chewing gum while cutting onions can help prevent tears.
+Otters have a favorite rock they use to break open food.
