@@ -1,1 +1,1 @@
-Otters have a favorite rock they use to break open food.
+The dot over the "i" and "j" is called a tittle.
