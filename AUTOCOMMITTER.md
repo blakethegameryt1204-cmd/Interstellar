@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+Wombat poop is cube-shaped.
