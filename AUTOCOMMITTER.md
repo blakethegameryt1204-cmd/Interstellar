@@ -1,1 +1,1 @@
-Bubble wrap was originally intended to be wallpaper.
+The hashtag symbol is technically called an octothorpe.
