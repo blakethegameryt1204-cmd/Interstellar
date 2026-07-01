@@ -1,1 +1,1 @@
-The wood frog can hold its pee for up to eight months.
+Elephants are the only animals that can’t jump.
