@@ -1,1 +1,1 @@
-A bolt of lightning is hotter than the surface of the sun.
+Humans are bioluminescent — we glow, but our eyes can’t detect it.
