@@ -1,1 +1,1 @@
-A narwhal’s tusk reveals its health and diet.
+Scotland has 421 words for "snow."
