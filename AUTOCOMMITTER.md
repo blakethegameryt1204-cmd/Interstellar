@@ -1,1 +1,1 @@
-A snail can grow back its eye if it gets cut off.
+A narwhal’s tusk reveals its health and diet.
