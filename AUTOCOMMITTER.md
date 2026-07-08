@@ -1,1 +1,1 @@
-Elephants are the only animals that can’t jump.
+The longest hiccuping spree lasted 68 years.
