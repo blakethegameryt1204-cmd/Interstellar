@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+Octopuses have nine brains.
