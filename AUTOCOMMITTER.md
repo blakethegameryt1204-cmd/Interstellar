@@ -1,1 +1,1 @@
-There are more stars in the universe than grains of sand on Earth.
+Bubble wrap was originally intended to be wallpaper.
