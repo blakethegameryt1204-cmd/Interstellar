@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+A jiffy is an actual unit of time — 1/100th of a second.
