@@ -1,1 +1,1 @@
-Octopuses have nine brains.
+Tomatoes have more genes than humans.
