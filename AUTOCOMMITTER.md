@@ -1,1 +1,1 @@
-Bubble wrap was originally intended to be wallpaper.
+Alaska is the state with the highest percentage of people who walk to work.
