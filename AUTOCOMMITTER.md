@@ -1,1 +1,1 @@
-Alaska is the state with the highest percentage of people who walk to work.
+A planet exists where it rains molten glass sideways.
