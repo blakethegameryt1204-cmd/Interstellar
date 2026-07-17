@@ -1,1 +1,1 @@
-lemons float in water but limes sink.
+There are more stars in the universe than grains of sand on Earth.
