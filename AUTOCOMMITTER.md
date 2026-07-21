@@ -1,1 +1,1 @@
-The word "strengths" is the longest word with one vowel.
+The average person walks the equivalent of five times around the world in a lifetime.
