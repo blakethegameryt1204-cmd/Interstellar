@@ -1,1 +1,1 @@
-The dot over the "i" and "j" is called a tittle.
+The word "strengths" is the longest word with one vowel.
