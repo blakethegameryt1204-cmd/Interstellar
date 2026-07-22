@@ -1,1 +1,1 @@
-The shortest war in history was between Britain and Zanzibar — it lasted 38 minutes.
+A snail can grow back its eye if it gets cut off.
