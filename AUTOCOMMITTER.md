@@ -1,1 +1,1 @@
-The average person walks the equivalent of five times around the world in a lifetime.
+The shortest war in history was between Britain and Zanzibar — it lasted 38 minutes.
