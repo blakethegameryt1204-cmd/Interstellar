@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+lemons float in water but limes sink.
