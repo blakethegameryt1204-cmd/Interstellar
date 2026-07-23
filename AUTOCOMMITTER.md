@@ -1,1 +1,1 @@
-A planet exists where it rains molten glass sideways.
+The human stomach gets a new lining every few days.
