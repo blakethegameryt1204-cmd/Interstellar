@@ -1,1 +1,1 @@
-Coca-Cola would be green without coloring.
+Otters have a favorite rock they use to break open food.
