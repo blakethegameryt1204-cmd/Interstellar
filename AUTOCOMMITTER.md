@@ -1,1 +1,1 @@
-Otters have a favorite rock they use to break open food.
+The hashtag symbol used to be called the pound sign.
