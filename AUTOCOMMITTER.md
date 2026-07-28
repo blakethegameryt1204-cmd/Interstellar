@@ -1,1 +1,1 @@
-Snails can sleep for three years at a time.
+The word "bookkeeper" has three consecutive double letters.
