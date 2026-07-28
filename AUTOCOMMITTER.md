@@ -1,1 +1,1 @@
-The word "bookkeeper" has three consecutive double letters.
+The hashtag symbol is technically called an octothorpe.
