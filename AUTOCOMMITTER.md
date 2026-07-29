@@ -1,1 +1,1 @@
-The word "strengths" is the longest word with one vowel.
+Sharks are the only fish that can blink with both eyes.
