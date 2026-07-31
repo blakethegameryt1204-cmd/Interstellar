@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+Chewing gum while cutting onions can help prevent tears.
