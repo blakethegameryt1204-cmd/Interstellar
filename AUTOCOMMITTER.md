@@ -1,1 +1,1 @@
-Koalas have fingerprints that are nearly identical to humans.
+The word "strengths" is the longest word with one vowel.
