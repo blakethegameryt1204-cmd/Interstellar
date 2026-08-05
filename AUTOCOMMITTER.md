@@ -1,1 +1,1 @@
-A group of flamingos is called a "flamboyance."
+Koalas have fingerprints that are nearly identical to humans.
