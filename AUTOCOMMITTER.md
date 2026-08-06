@@ -1,1 +1,1 @@
-The first oranges weren’t orange — they were green.
+The longest hiccuping spree lasted 68 years.
