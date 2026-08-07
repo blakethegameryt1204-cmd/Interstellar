@@ -1,1 +1,1 @@
-The hashtag symbol used to be called the pound sign.
+Water can boil and freeze at the same time — it’s called the triple point.
