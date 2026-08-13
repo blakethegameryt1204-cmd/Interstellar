@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+The word "bookkeeper" has three consecutive double letters.
