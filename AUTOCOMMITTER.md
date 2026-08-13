@@ -1,1 +1,1 @@
-The word "bookkeeper" has three consecutive double letters.
+The unicorn is the national animal of Scotland.
