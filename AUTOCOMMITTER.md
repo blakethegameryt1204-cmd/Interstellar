@@ -1,1 +1,1 @@
-Newborns don’t shed tears until about two weeks old.
+A group of flamingos is called a "flamboyance."
