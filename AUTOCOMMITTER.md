@@ -1,1 +1,1 @@
-Water can boil and freeze at the same time — it’s called the triple point.
+Newborns don’t shed tears until about two weeks old.
