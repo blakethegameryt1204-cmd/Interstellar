@@ -1,1 +1,1 @@
-You can’t sneeze with your eyes open.
+The shortest war in history was between Britain and Zanzibar — it lasted 38 minutes.
