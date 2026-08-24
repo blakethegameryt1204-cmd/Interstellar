@@ -1,1 +1,1 @@
-Your brain uses the same amount of power as a 10-watt lightbulb.
+Frogs absorb water through their skin — they don’t drink it.
