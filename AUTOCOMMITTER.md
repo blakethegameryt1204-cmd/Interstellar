@@ -1,1 +1,1 @@
-Octopuses have three hearts.
+Your brain uses the same amount of power as a 10-watt lightbulb.
