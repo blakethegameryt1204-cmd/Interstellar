@@ -1,1 +1,1 @@
-A bolt of lightning strikes somewhere on Earth 100 times every second.
+Humans share about 60% of their DNA with bananas.
