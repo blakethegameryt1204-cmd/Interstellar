@@ -1,1 +1,1 @@
-Humans share about 60% of their DNA with bananas.
+Scotland has 421 words for "snow."
