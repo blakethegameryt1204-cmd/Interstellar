@@ -1,1 +1,1 @@
-Octopuses taste with their arms.
+You can’t sneeze with your eyes open.
