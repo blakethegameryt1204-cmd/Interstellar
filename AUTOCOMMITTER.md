@@ -1,1 +1,1 @@
-Octopuses have three hearts.
+Avocados are toxic to birds.
