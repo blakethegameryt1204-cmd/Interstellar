@@ -1,1 +1,1 @@
-Avocados are toxic to birds.
+Sharks existed before trees.
