@@ -1,1 +1,1 @@
-Mantis shrimp can punch with the speed of a bullet.
+There are more stars in the universe than grains of sand on Earth.
