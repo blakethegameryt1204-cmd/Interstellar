@@ -1,1 +1,1 @@
-Goats have rectangular pupils.
+You burn more calories sleeping than watching TV.
