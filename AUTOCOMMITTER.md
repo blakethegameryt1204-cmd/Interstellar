@@ -1,1 +1,1 @@
-Chewing gum while cutting onions can help prevent tears.
+There are more fake flamingos in the world than real ones.
