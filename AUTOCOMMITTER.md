@@ -1,1 +1,1 @@
-A planet exists where it rains molten glass sideways.
+Chewing gum while cutting onions can help prevent tears.
