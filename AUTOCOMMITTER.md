@@ -1,1 +1,1 @@
-Octopuses have nine brains.
+Goats have rectangular pupils.
